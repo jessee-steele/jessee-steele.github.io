@@ -13,6 +13,14 @@ Previously, I worked on environmental regulation and compliance with Eastern Res
 
 In my free time, I love to cook, powerlift, garden, and craft.
 
-Research Interests
+Publications
+======
+Website under construction....
+
+Publications
+======
+Steele, J. J. B., Thellman, A. N., Vought, O. K., Rosi, E. J., Wooster, T., Solomon, C. T., & Bernhardt, E. S. (2024). Bryospheres in oligotrophic headwater streams provide nutrient dense habitats and dominate stream nutrient cycling. Freshwater Science. https://doi.org/10.1086/733067
+
+News
 ======
 Website under construction....
