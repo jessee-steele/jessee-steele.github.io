@@ -19,18 +19,29 @@ Steele, J., Thellman, A., Vought, O., Rosi, E., Wooster, T., Solomon, C., & Bern
 
 Teaching
 ======
-+ **Mentor** | Greenhouse Scholars | 2023 - present
-+ **Instructor** | **Topics in Houseplants** | Duke | 2022-2023
-+ **Gallery Guide** | Nasher Museum of Art | Duke | 2019-2023
-+ **Facilitator** | First-Year Sustainability Literacy | Duke | 2019-2023
-+ **Facilitator** | Transformative Justice Circles | Duke | 2021-2022
++ **Mentor**: Greenhouse Scholars (2023 - present)
++ **Instructor**: Topics in Houseplants (Duke, 2022-2023)
++ **Gallery Guide**: Nasher Museum of Art (Duke, 2019-2023)
++ **Facilitator**: First-Year Sustainability Literacy (Duke, 2019-2023)
++ **Facilitator**: Transformative Justice Circles (Duke, 2021-2022)
 
 Conferences
 ======
-+ **AGU** | December 2022 | Chicago, IL | Steele, J., Thellman, A., Rosi, E., & Bernhardt, E. Bryospheres in oligotrophic headwater streams provide nutrient dense habitats. – Awarded $1,800 travel grant. 
-+ **Hubbard Brook Annual Cooperators’ Meeting** | July 2022 | Plymouth, NH | Steele, J., Foster, M., Thellman, A., Rosi, E., & Bernhardt, E. Stream bryophyte nutrient stocks and uptake.
-+ **Mickey Leland Energy Fellowship Technical Forum** | August 2021 | Remote | Steele, J. & Arora B. Understanding Variable Outcomes of Enhanced Weathering on Agricultural Soils.
++ **AGU** (December 2022, Chicago, IL) Steele, J., Thellman, A., Rosi, E., & Bernhardt, E. Bryospheres in oligotrophic headwater streams provide nutrient dense habitats. – Awarded $1,800 travel grant. 
++ **Hubbard Brook Annual Cooperators’ Meeting** (July 2022, Plymouth, NH) Steele, J., Foster, M., Thellman, A., Rosi, E., & Bernhardt, E. Stream bryophyte nutrient stocks and uptake.
++ **Mickey Leland Energy Fellowship Technical Forum** (August 2021, Remote) Steele, J. & Arora B. Understanding Variable Outcomes of Enhanced Weathering on Agricultural Soils.
+
+Fellowship
+======
++ University of Virginia Provost’s Fellowship (2025-2030)
++ NSF Graduate Fellowship Honorable Mention (2025)
++ Mickey Leland Energy Fellowship @ Lawrence Berkeley National Laboratory (2021)
 
 News
 ======
 + **September 2025**: Ventured to the ghost forests of eastern North Carolina with new and old research friends and a really cool journalist who wrote about it!
+
+
+
+
+
